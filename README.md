@@ -1,2 +1,2 @@
 # b3ps5
-a new way (thk taisukef)
+a new way (thx taisukef)
